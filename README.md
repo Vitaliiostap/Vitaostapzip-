@@ -1,0 +1,2 @@
+# Vitaostapzip-
+Vînzare și cumpărare 
